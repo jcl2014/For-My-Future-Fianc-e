@@ -8,7 +8,9 @@ Good Morning Kexin! I'm glad that you see this.
 所以，我也希望你能跟我一起，一起打开我们记忆新的一页。  
   
 ### Slack for today
-1. 我找到了如何打开我的exe文件的方法！  
-a. 到这个页面，下载我的exe文件  
+1. 我找到了如何打开我的exe文件的方法！   
+a. 到这个页面，下载我的exe文件（旁边有一个download）  
+https://github.com/jcl2014/For-My-Future-Fiancee/blob/master/Ps05.exe    
+b. 下载用于转换的文件，名字叫winebottle  
 
 https://www.youtube.com/watch?v=337pXjmvAhc
