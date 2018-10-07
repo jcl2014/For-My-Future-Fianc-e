@@ -7,7 +7,7 @@ Good Morning Kexin! I'm glad that you see this.
 但我反省之后觉得，对的，一段异国恋需要双方付出比以前更多的努力。以前我可以凌晨四点在上海站坐上去南京的第一班硬座去见你，但现在不能了，这的确放大了很多问题。因此，我想发挥我的想象力，不断给这个页面加入新的elment，我想让你每天找到新鲜的感觉。Thanks to coding. 我们比20年前异国的人们好了太多^_  
 所以，我也希望你能跟我一起，一起打开我们记忆新的一页。  
   
-### Slack for today
+### Snacks for today
 1. 我找到了如何打开我的exe文件的方法！   
 a. 到这个页面，下载我的exe文件（旁边有一个download）  
 https://github.com/jcl2014/For-My-Future-Fiancee/blob/master/Ps05.exe    
