@@ -8,5 +8,6 @@ Good Morning Kexin! I'm glad that you see this. 听到昨天晚上你给我说�
   
 ### Slack for today
 1. 我找到了如何打开我的exe文件的方法！  
-a. 到这个页面，下载我的exe文件
+a. 到这个页面，下载我的exe文件  
+
 https://www.youtube.com/watch?v=337pXjmvAhc
