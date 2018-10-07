@@ -6,3 +6,4 @@ Good Morning Kexin! I'm glad that you see this. 听到昨天晚上你给我说�
 但我反省之后觉得，对的，一段异国恋需要双方付出比以前更多的努力。以前我可以凌晨四点在上海站坐上去南京的第一班硬座去见你，但现在不能了，这的确放大了很多问题。因此，我想发挥我的想象力，我想让你每天找到新鲜的感觉。Thanks to coding. 我们比20年前异国的人们好了太多^_  
 所以，我也希望你能跟我一起，一起打开我们记忆新的一页。  
 
+https://www.youtube.com/watch?v=337pXjmvAhc
