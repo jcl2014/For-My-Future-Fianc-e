@@ -29,4 +29,6 @@ https://www.accuweather.com/zh/gb/edinburgh/eh1-3/daily-weather-forecast/327336
 又是一周开始了！给你一个morning kiss，祝你一切顺利mua  
 
 ### Snacks for today  
+下载这个repostory中的那个html文件（通过点击右上方那个绿色的Clone or download按钮），点开程序员的浪漫，我们可以  
+https://github.com/jcl2014/For-My-Future-Fiancee
 
