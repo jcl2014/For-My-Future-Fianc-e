@@ -22,3 +22,11 @@ https://www.accuweather.com/zh/gb/edinburgh/eh1-3/daily-weather-forecast/327336
 有些降雨，记得带伞哦！  
 
 明天见！爱你！
+
+## 2018/10/08  
+早上好宝贝！  
+昨晚我们有些不愉快，但就像今天的雨一样，下得很大，但明天就会走的。并且留下大大彩虹🌈    
+又是一周开始了！给你一个morning kiss，祝你一切顺利mua  
+
+### Snacks for today  
+
