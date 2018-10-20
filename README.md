@@ -1,19 +1,18 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/10/19  
-北鼻早上好！ 北鼻喜欢我昨天的教学吗😄其实因为我这周从开始一直忙到今晚，所以今晚有点累😔希望北鼻体谅体谅
+## 2018/10/20 
+北鼻早上好！ 周末啦！这周还有什么遗憾的事情呢？赶紧抓紧时间完成它吧~
 🐙🐇
 
   
 ### Snacks for today
-1. 今天给北鼻推荐一个好玩的python package.   
-import faker
-键入help faker来查找有趣的功能
+1. 给北鼻推荐一个geek的代码page，体会程序员的悲哀吧！  
+https://github.com/NARKOZ/hacker-scripts
 
 2. 今天的爱宝天气  
 https://www.accuweather.com/zh/gb/edinburgh/eh1-3/daily-weather-forecast/327336  
-今天天气稍稍有些回暖，enjoy~
+今天是一个阴天，但希望北鼻的心情跟佳佳的祝福一样high😙
 
 明天见！爱你！
 
