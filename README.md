@@ -1,13 +1,17 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/10/23 
-北鼻早上好！ 昨天北鼻和我都好忙哦，而且都没怎么聊天，给北鼻摸摸背。对了，昨天睡着之前依稀听到北鼻怀孕了？？北鼻不要吓我嘎嘎嘎（Gavin假笑😀）
+## 2018/10/24 
+北鼻早上好！ 昨天北鼻晚睡好辛苦，眼睛都红了😭我不能帮你syntax和面试，那只能帮你python了😭，看今天的snack我给了你一些帮助。
+我好菜，都不能帮女朋友写代码😭😭😭
 🐙🐇
 
   
 ### Snacks for today
-1. 今天试着做了下Gavin的表情包爬虫，但是google貌似有反爬虫😂我再试试
+1. 
+这个网页有我写的py文件，你可以打开terminal，然后键入  
+git clone   
+可以直接下载。（当然点击绿色的下载也可以）
 
 2. 今天的爱宝天气  
 https://www.accuweather.com/zh/gb/edinburgh/eh1-3/daily-weather-forecast/327336  
