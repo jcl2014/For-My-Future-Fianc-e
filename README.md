@@ -1,8 +1,9 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/10/27 
+## 2018/10/28 
+亲爱的北鼻，昨天讲的🐙🐇的故事，不知道你听到哪里啦？以后多买点水果牛奶这些放冰箱，晚上饿的时候就少吃点辣的了。北鼻身体养好。我们才能生盖文鸭。
+就像我故事里的🐙一样，我们会找到☀的。
+🐙🐇
 
-
-
-![爱你的佳](https://github.com/jcl2014/For-My-Future-Fiancee/blob/master/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20181027022901.jpg)
+  
