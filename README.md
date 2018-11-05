@@ -1,8 +1,8 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/11/01
-北鼻早上好！i'm so sorry for last night.北鼻处在最难的时刻，我们应该互相扶持互相体谅的，而我却没做到😭都是因为我头晕晕的一时糊涂，祝北鼻今天面试加油！！！！！我爱你！！
+## 2018/11/05
+Good morning my kitty! I know it would be hard these days. 但是想想，我们努力坚持一周，事情就会有很多专机的！比如你的python作业我就写好了！对不对。加油my baby kexin kitty!
 🐙🐇
 
   
