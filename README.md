@@ -2,7 +2,7 @@
 Hi my sweetheart :)  
 
 ## 2018/11/11
-Good morning my kitty宝贝！今天离我们见面只有40天了！好想好想你啊，明天我们把宾馆订光光吧！
+Good morning my kitty宝贝！看到北鼻一点点地写出厉害的代码我真的好开心，北鼻一直是最棒的！，
 🐙🐇
 
   
