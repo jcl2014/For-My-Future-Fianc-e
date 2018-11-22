@@ -1,8 +1,8 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/11/19
-Good morning Kitty! 今天晚上回来当我看到我那双未开包的UGG时，我突然意识到其实我并不需要一个里面有绒的靴子。You know what? I already have the warmest honey😙 Looking forward to our couple boots girl!
+## 2018/11/22
+Good morning Kitty! 做完又哄北鼻睡着了好开心~北鼻真的不用太焦虑工作，我相信你的实力一定能找到的。可能刚开始的钱不多或者比较累，但大家都是一点点积累经验的，你像我一天120的实习也可以请北鼻吃法餐对不对。今天加油！别再因为作业哭了😭
 🐙🐇
 
   
