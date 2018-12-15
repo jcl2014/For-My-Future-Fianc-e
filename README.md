@@ -1,6 +1,5 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/12/09
-Good morning Kitty! 现在是1:41AM, 今天写了很多东西，虽然很累但是很开心，因为我马上就可以见北鼻了！北鼻这几天也要加油鸭😙
-  
+## 2018/12/15
+Good morning Kitty! 现在是3:24AM, 刚才和同学一起玩得很开心。相信北鼻这么outgoing的女孩肯定很受人欢迎的!You are not alone1!
