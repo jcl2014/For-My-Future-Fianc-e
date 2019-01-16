@@ -1,6 +1,4 @@
 # For-My-Future-Fiancee
 Hi my sweetheart :)  
 
-## 2018/12/21
-I'm coming my girl.
-
+![image](http://github.com/itmyhome2013/readme_add_pic/raw/master/images/nongshalie.jpg)
