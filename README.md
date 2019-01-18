@@ -1,5 +1,4 @@
 # For-My-Future-Fiancee
-我会永远记得我们的第一天  
+亲爱的北鼻早上好！我们的秘密line又开始啦！这学期我会努力探索更多的东西，让北鼻有更好的用户体验！
 
-![image](https://github.com/jcl2014/For-My-Future-Fiancee/blob/master/unnamed.jpg)
-![image](https://github.com/jcl2014/For-My-Future-Fiancee/blob/master/2017-09-04%20051048.jpg)
+想念北鼻😘
